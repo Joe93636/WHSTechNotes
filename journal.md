@@ -12,3 +12,12 @@ the job is found nteresting was a web developer. a web developer is responsible 
 Coding can help problem solving skills cause when making code you will likely find a couple of errors promting you to find them and fix them and most of the time when making code you will find an error even if it is a small one.Understanding code for stuff like healthcare, finances  can help a lot because  it could be useful for healthcare cause maybe the manufacturing process can be helped with proper coding and for finances it can keep the money in check.coding can help  with creativity and collaberation  cause coding allows you to do basically anything if you are skilled enough, i mean anything you want to do you can do given enough time and effort and it can also help with teambulding skills cause if you have trouble with something you can always ask a friend or someone skilled enough to help you.
 # october 22, 2024
  ai can be both very good and very bad for the people using it i mean its good for companies in healthcares,schools, and transportations cause you can use ai to help with the process to make a new health drug and can help with schools by making it show the ai solve harder problems that could be deemed impossible or help in the process of self driving cars with ai. but then there comes the downsides to ai because one of the biggest problems is coprate greed with replacing peoples jobs with ai cause it is cheaper than just hiring people and there is a bunch of deepfake photos of stuff that people think is real and is spreading information about a photo that isn't even real.
+# october 29, 2024
+tech has make a lot of things better and worse but stuff like politics is kind of unexpected for me but people never really tell us how it impacts the election i mean there is the  the voting machine which then after all the voting is done it then adds up all the total votes to see who is going to be the next president and there is social media which can also help in the voting process cause the presidents can do stuff to persuade people to vote for them in the election.
+
+
+
+
+
+
+
