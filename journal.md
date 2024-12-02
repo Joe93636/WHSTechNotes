@@ -20,3 +20,5 @@ it is very important to keep your information private when publishing cause what
 There is a bunch of reasent events that have been going on like halloween and soon thanksgiving and chrismas  all of them have to do with the stuff we learn cause you can code lots of stuff in holidays like a horror game for halloween or maybe code something about family for thanksgiving and you can make stuff with code for presents on chrismas  you can do lots of stuff on holidays it affects those days cause of the people that code on those specific holiday. advancments in tech can affect the future with a bunch of cool stuff like maid robots or more advance devices like maybe in the future there could be a switch 2 that runs better than a toaster or we could have flying cars.
 # november 22, 2024
 The holiday that is coming next week is thanksgiving.
+# december 2, 2024
+ai could shape a lot of society  especally with people being replaced by ai, maybe because they are greedy or could not afford efficient workers (from harvard university) which kind of scares me  cause what if stuff like movies or video games  could be  affected by ai and would feel very soulless
