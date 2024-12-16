@@ -23,4 +23,6 @@ The holiday that is coming next week is thanksgiving.
 # december 2, 2024
 ai could shape a lot of society  especally with people being replaced by ai, maybe because they are greedy or could not afford efficient workers (from harvard university) which kind of scares me  cause what if stuff like movies or video games  could be  affected by ai and would feel very soulless
 # december 10, 2024
-brain rot means something in media that looks bad or has a negative influence or something like that which is why i think brain rot in digital media will have a very negative impact on it from the amount of terrible stuff there is now  adn lots of words like slop,lore and other words like that will bring on a more negative impact
+brain rot means something in media that looks bad or has a negative influence or something like that which is why i think brain rot in digital media will have a very negative impact on it from the amount of terrible stuff there is now  adn lots of words like slop,lore and other words like that will bring on a more negative impact.
+# december 16, 2024
+ yes i am very excited for break.
