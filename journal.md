@@ -26,3 +26,5 @@ ai could shape a lot of society  especally with people being replaced by ai, may
 brain rot means something in media that looks bad or has a negative influence or something like that which is why i think brain rot in digital media will have a very negative impact on it from the amount of terrible stuff there is now  adn lots of words like slop,lore and other words like that will bring on a more negative impact.
 # december 16, 2024
  yes i am very excited for break.
+# january 8, 2025 
+ i enjoyed a lot of stuff in class the whole entire way through the cars, the spheres were lots of fun what topics i want to learn this year?.  nothing new than the stuff im already set on and i want to pursue some certificant related to this sort of class.
