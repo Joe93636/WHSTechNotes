@@ -28,3 +28,5 @@ brain rot means something in media that looks bad or has a negative influence or
  yes i am very excited for break.
 # january 8, 2025 
  i enjoyed a lot of stuff in class the whole entire way through the cars, the spheres were lots of fun what topics i want to learn this year?.  nothing new than the stuff im already set on and i want to pursue some certificant related to this sort of class.
+# january 13, 2025
+I think the shift for ai jobs will limit opportunites  for people who want a job that requires skill and i feel like big companies will replace a lot of their workers  with ai just to save money and less time working on something new but there will be less effort in it and ai can help in some aspects but in 9 out od 10 times people need to work on the things that they work on or else it will be ai slop.
