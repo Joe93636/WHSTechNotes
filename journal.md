@@ -32,3 +32,11 @@ brain rot means something in media that looks bad or has a negative influence or
 I think the shift for ai jobs will limit opportunites  for people who want a job that requires skill and i feel like big companies will replace a lot of their workers  with ai just to save money and less time working on something new but there will be less effort in it and ai can help in some aspects but in 9 out od 10 times people need to work on the things that they work on or else it will be ai slop.
 # january 22, 2025
 i think the go goverment intervention of tiktok means nothing to me cuase they did not even enforce much of a ban and it was more of a publicity stunt.i don't know if they will go after any other social media platforms or tech comapnys but from the looks of it we won't see something like this for a while. companies like tiktok could adress their security by reasureing the people who use it while keeping it under wraps so they could still be operating globally.Or they could just address any acusations thrown at them by showing evidence that whatever they were accused of  they could disprove it.I never really used tiktok but if i were a developer making something for privacy i would make the feature of being able to not show your liked videos. I would make something like this to ensure that no one could bully or blackmail someone just from videos that they like or to have it so people don't bully you based on the videos people watch.i could take the lesson of data privacy cause the whole reason tiktok was getting the ban was of security issues. and i can take that and use it or when im developing something to make sure that security is very up to date and that people will feel safe on the platform.
+# january 27, 2025
+- Example:
+
+| Name     | Car | Mistake |
+| :------- | :-- | :------ |
+| Jimmy    | civic    |drilled a hole         |
+| Kayla    |  sirrea   |fixed wrong problem         | Bart     |toyota     |left stains         |
+| Harrison |subura     |left the oil cap off         |
