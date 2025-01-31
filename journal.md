@@ -37,6 +37,8 @@ i think the go goverment intervention of tiktok means nothing to me cuase they d
 
 | Name     | Car | Mistake |
 | :------- | :-- | :------ |
-| Jimmy    | civic    |drilled a hole         |
-| Kayla    |  sirrea   |fixed wrong problem         | Bart     |toyota     |left stains         |
-| Harrison |subura     |left the oil cap off         |
+| Jimmy    |civic     |drilled a hole         |
+| Kayla    |sirrea     | fixed wrong problem        |
+| Bart     | toyota    |  left stains on the carpet       |
+| Harrison |subaru     |  left the oil cap off       |
+
