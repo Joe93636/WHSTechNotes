@@ -41,6 +41,6 @@ i think the go goverment intervention of tiktok means nothing to me cuase they d
 | Kayla    |sirrea     | fixed wrong problem        |
 | Bart     | toyota    |  left stains on the carpet       |
 | Harrison |subaru     |  left the oil cap off       |
-# febuary 3, 2025
+# february 3, 2025
 computor science is very realeted with airplanes for a lot of things. Like the air traffic control systems  that directs the aircraft and ensure that the ride is safe and efficient and is also made to prevent collisions.it is just a big of network of ground based controllers and tect. it is very important to have good cyber security epsacually if it is for something like an airplane cause if the security is not up to date it could be a huge risk cause what if some other group of bad people hack the planes system and make them go to some other place.  unclear alerts or  porr interface design play big roles in crashes cause communication is key if something does not go through the people could do something wrong which could result in a crash. you could use machines to predict flight paths or call out mistakes  so the people could focus on the more important stuff to prevent crashes.
 
