@@ -49,3 +49,12 @@ If is was working for the nfl in sofware development  i would improve the plays 
  The most interesting thing i learned  last week was when i watched a random video about how snakes can't poison themselves  with their own venom.
 # february 24, 2025
 Tech can do lot's of things to help us in our daily lives  and it can also help us in language barriers  for kids and adults. becauses kids now are saying all these words that sound like something random but tech could help teach people the words and what they mean and how to use them in conversations. i don't think schools should teach it because it would be a waste of time and money and i think  people should learn it on their own time.
+# march 6, 2025
+
+| Name    | Power | Challenge |
+| :------ | :---- | :-------- |
+| Zara    | telekenesis      | secure building          |
+| Aether  | weather manipulation      | prevent assassination          |
+| Thorne  | invisibility      | underwater rescue          |
+| Silver  |  mind control      | retrive stolen goods          |
+| Tangier | shapeshifting      | extract prisoner          |
