@@ -58,3 +58,5 @@ Tech can do lot's of things to help us in our daily lives  and it can also help 
 | Thorne  | invisibility      | underwater rescue          |
 | Silver  |  mind control      | retrive stolen goods          |
 | Tangier | shapeshifting      | extract prisoner          |
+# march 17, 2025
+tech i used during spring break is my xbox it entertained  me by letting me play fun games.
