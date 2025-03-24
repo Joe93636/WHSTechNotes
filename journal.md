@@ -60,3 +60,5 @@ Tech can do lot's of things to help us in our daily lives  and it can also help 
 | Tangier | shapeshifting      | extract prisoner          |
 # march 17, 2025
 tech i used during spring break is my xbox it entertained  me by letting me play fun games.
+# march 24, 2025
+i don't think ai will really impact march madness in terms of like predicting shots or to add excitement  because i think that ai is not developed enough  to make accurate predictions on how the players are going to shot or what their plays are going to be . as for social media impacting march madness, i don't think it will as much as ai  but they could promote on the various apps and stream it on some app.
