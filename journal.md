@@ -64,3 +64,5 @@ tech i used during spring break is my xbox it entertained  me by letting me play
 i don't think ai will really impact march madness in terms of like predicting shots or to add excitement  because i think that ai is not developed enough  to make accurate predictions on how the players are going to shot or what their plays are going to be . as for social media impacting march madness, i don't think it will as much as ai  but they could promote on the various apps and stream it on some app.
 # march 31, 2025
 i am feeling pretty good right now, i don't have anything bad going on in my life cause life is pretty good. if i am being honest there is no stressful part about school because all of it is pretty chill.things i do if i am stressed out is play games or watch movies. one goal i have for school is to write better.
+# april 4, 2025
+ i did  the hour of code. i did the transformer one activities.
