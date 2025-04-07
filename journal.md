@@ -66,3 +66,5 @@ i don't think ai will really impact march madness in terms of like predicting sh
 i am feeling pretty good right now, i don't have anything bad going on in my life cause life is pretty good. if i am being honest there is no stressful part about school because all of it is pretty chill.things i do if i am stressed out is play games or watch movies. one goal i have for school is to write better.
 # april 4, 2025
  i did  the hour of code. i did the transformer one activities.
+# april 7, 2025
+i think ai could help with study by putting in questions in the serch to help you past the test
