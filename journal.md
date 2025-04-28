@@ -68,3 +68,8 @@ i am feeling pretty good right now, i don't have anything bad going on in my lif
  i did  the hour of code. i did the transformer one activities.
 # april 7, 2025
 i think ai could help with study by putting in questions in the serch to help you past the test
+# april 28, 2025
+(Name	Flavor	Occasion	Price)
+(Sally	Chocolate	Graduation	$35.00)
+(Michael	Vanilla	Farewell Party	$37.00)
+(Emma	Carrot	Birthday	$39.00)
