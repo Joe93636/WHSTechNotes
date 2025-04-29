@@ -73,3 +73,5 @@ i think ai could help with study by putting in questions in the serch to help yo
 (Sally	Chocolate	Graduation	$35.00)
 (Michael	Vanilla	Farewell Party	$37.00)
 (Emma	Carrot	Birthday	$39.00)
+# april 29, 2025
+its a free week
