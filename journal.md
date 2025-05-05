@@ -75,3 +75,6 @@ i think ai could help with study by putting in questions in the serch to help yo
 (Emma	Carrot	Birthday	$39.00)
 # april 29, 2025
 its a free week
+# may 5, 2025
+100 men vs one gorilla could be and either way fight because if the men were to go one at a time obviously the gorilla would win.but if all 100 of the men charged in at once the gorilla would get overwhelmed and the men would win, even zookeepers have said 100 men is over killed and that 30-40 men all charging at the gorilla at once could overwhelm the gorilla. i guess ir it is responsible to make stuff like this popular and that it could teach people a few things about thinking about planning your moves and stuff.what it says about online trends is its just for the fun of it and not really ment to be taken seriously.
+#m
