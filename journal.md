@@ -77,4 +77,5 @@ i think ai could help with study by putting in questions in the serch to help yo
 its a free week
 # may 5, 2025
 100 men vs one gorilla could be and either way fight because if the men were to go one at a time obviously the gorilla would win.but if all 100 of the men charged in at once the gorilla would get overwhelmed and the men would win, even zookeepers have said 100 men is over killed and that 30-40 men all charging at the gorilla at once could overwhelm the gorilla. i guess ir it is responsible to make stuff like this popular and that it could teach people a few things about thinking about planning your moves and stuff.what it says about online trends is its just for the fun of it and not really ment to be taken seriously.
-#m
+# may 12, 2025
+honestly the whole lead in the chromebook challenge just goes to show why we can't have good things because we give stuff to these students and they find a way to ruin it for everyone. and i think for the people who do that should get fined way more than they charging.
