@@ -86,3 +86,5 @@ honestly the whole lead in the chromebook challenge just goes to show why we can
 | Max    |  3 years   |   train  | 
 | Kylie  |  4 years    |  dinosaur   |
 | Emma   |5 years     |  plush dog   |
+# may 19, 2025
+i am very ready for summer break because i won't have to go to school for a bit.
