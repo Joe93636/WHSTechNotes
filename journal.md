@@ -88,3 +88,5 @@ honestly the whole lead in the chromebook challenge just goes to show why we can
 | Emma   |5 years     |  plush dog   |
 # may 19, 2025
 i am very ready for summer break because i won't have to go to school for a bit.
+# september 2, 2025
+I hate this new phone law, it felt so unneeded since we have more important stuff to deal with in schools than phones. like school shootings, bad lunches and the thing they choose to tackle is phones it sounds stupid to go after a minor issue and it sucks having to go through it unless they change it in the future.
