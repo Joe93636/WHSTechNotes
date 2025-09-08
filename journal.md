@@ -90,3 +90,5 @@ honestly the whole lead in the chromebook challenge just goes to show why we can
 i am very ready for summer break because i won't have to go to school for a bit.
 # september 2, 2025
 I hate this new phone law, it felt so unneeded since we have more important stuff to deal with in schools than phones. like school shootings, bad lunches and the thing they choose to tackle is phones it sounds stupid to go after a minor issue and it sucks having to go through it unless they change it in the future.
+# september 2, 2025
+I have always wanted to be a game maker. i mean it as in making the code and i think its pretty obvious what computer scienece has to do with coding games since im pretty sure code is included in computer scienece with stuff like making sure the code runs smooth or to make sure there are as little bugs as possible. making games just seemed so cool to me and one of the main reasons for me wanting to make them is to make a very enjoyable experience(also money).
