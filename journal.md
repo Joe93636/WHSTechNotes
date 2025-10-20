@@ -104,3 +104,10 @@ Personally if i was in charge of the ai and tech stuff, i would make alot of cha
 https://123sesemestreet.my.canva.site/
 my prompt was made to teach people about the different planets and what makes them different from eachother. the canva ai made it do exactly that by showing off the planets and how many moons they have. the best interactive part was when you click on the planet, it shows you information about said planet. i could improve on maybe having it say a fun fact about each planet. or i could make it so it includes the sun(even though its not a planet).
 my prompt was made to teach people about space and what makes them different 
+# october 20, 2025
+
+| Name     | Class | Seat |
+| :------- | :---- | :--- |
+| Franklin | 2nd      |91a       |
+| Hardeep  | 3rd      | 61f     |
+| Marla    |1st       |35b      |
