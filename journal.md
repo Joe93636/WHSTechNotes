@@ -111,3 +111,10 @@ my prompt was made to teach people about space and what makes them different
 | Franklin | 2nd      |91a       |
 | Hardeep  | 3rd      | 61f     |
 | Marla    |1st       |35b      |
+# october 27, 2025
+
+| Name     | Main Dish | Dessert |
+| :------- | :-------- | :------ |
+| Fiona    |  gado gado         |creme brulee         |
+| Tobias   | shrimp ceviche          |french apple cake         |
+| Leanne   |beef wellington           |raspberry tiramisu         |
