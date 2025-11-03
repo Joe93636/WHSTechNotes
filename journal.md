@@ -118,3 +118,5 @@ my prompt was made to teach people about space and what makes them different
 | Fiona    |  gado gado         |creme brulee         |
 | Tobias   | shrimp ceviche          |french apple cake         |
 | Leanne   |beef wellington           |raspberry tiramisu         |
+# november 3, 2025
+SNAP not getting funding anymore is devisating to hear, and the reason why is so sad. snap not getting funding is bad because they helped out alot of familys get groceries, and the ones most affected are the poor familys who can barely make a living. technology could help out in showing those people stores who give out products for a price they can afford. the problem with that is what if they don't have a computer or any device that could help them out, and even then what if they don't have wifi. if i were to design something to help people get the products they need, i would give them a list of what they get, and i would send people out to get the items they need(IF I HAD the funding).
