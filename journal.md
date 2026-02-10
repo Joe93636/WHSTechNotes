@@ -140,3 +140,5 @@ i think gym bots could help make a better and more healthier society, and clean 
 i did the reading and writing and biology tests, i think i did great.
 # february 2, 2026
 1 because  no one wants to be near someone who dosent smell, and also because of health benefits. 2 by distracting others or make them completely off focus to move away from the source. 3i think people would expect someone to take care of themselves hygine wise, to respect peoples personal bubbles, not yell randomly, and also to act accordenly during the situation. 4 because if not regulated then the schools could deem you someone out of control leaving for lesser options for jobs if the behavior is kept up. 5 i could alawys talk clearer for better conversations.
+# february 10, 2026
+i do enjoy watching football, and i did watch the super bowl. i thought it was funny how the sea hawks only scored with field goals till around 3rd quarter.
